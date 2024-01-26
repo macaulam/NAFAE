@@ -1,0 +1,1 @@
+“We are The National Association for Fine Art Education, the Subject Association for Fine Art education in the UK. We advocate the interests, promotion and cultural relevance of Fine Art education at Foundation, BA, MA and PhD levels.”
